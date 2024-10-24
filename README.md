@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @monish39  
+- 👀 I’m interested in tech, coding, web development, gaming, and creating innovative projects.  
+- 🌱 I’m currently learning design, Adobe tools, web development, and honing my writing skills.  
+- 💞️ I’m looking to collaborate on open-source projects, AI/ML-based systems, web development tools, and design.  
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/monish-patil-99891a307) or monishpatil3925@gmail.com  
+- 😄 Pronouns: He/Him  
+- ⚡ Fun fact: Along with my tech skills, I’m also a writer and enjoy crafting stories as part of my creative process!  
